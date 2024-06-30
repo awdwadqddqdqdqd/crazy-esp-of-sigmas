@@ -1,2 +1,1 @@
-# crazy-esp-of-sigmas
-esp
+this-is a esp scrip okay discord koulla69.
